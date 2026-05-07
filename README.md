@@ -1,2 +1,0 @@
-# NAOMI-BUDGET-APP
-22k
